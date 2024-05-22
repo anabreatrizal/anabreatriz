@@ -1,2 +1,4 @@
 # infernodealura
-vai se fuder
+estudando alura(por obrigação)
+aprendendo java script(copiando)
+aff
