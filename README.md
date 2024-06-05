@@ -5,12 +5,6 @@ meu nome é ana beatriz
 
 -alura por amor 🧚
 
--curso lixo
-
--governo lixo
-
--a democracia foi pro caralho
-
  ### entre em contato comigo,por aqui 🤓
 
  anabeatrizadomingues@gmail.com
